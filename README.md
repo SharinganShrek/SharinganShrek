@@ -1,0 +1,4 @@
+- SharinganShrek - Also known as Gigachad in some platforms
+- Experienced in Aruino's C++ and currently learning Python
+- You can reach me via e-mail if you want to(emre.akif.arslan@gmail.com)
+- I'm looking to collaborate on literally every project that includes programming :3
